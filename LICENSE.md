@@ -1,4 +1,4 @@
-#  
+#  Experience dragon adventures like never before with rare Script for dragon adventures, the #1 Script. Includes anti-ban and god mode for unbeatable
 
 
 
